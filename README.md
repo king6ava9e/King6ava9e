@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @King6ava9e (Acheampong Kingsley )
+- 👋 Hi, I’m @King6ava9e (Acheampong Kingsley ) and i'm from Ghana
 - 👀 I’m interested in Reading, learning and teaching.
 - 🌱 I’m currently learning Nursing(Anesthesia) and (Software Engineering)
 - 💞️ I’m looking to collaborate on alluring projects that will provide access to elegant applications to increase productivity in the society.
