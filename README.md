@@ -24,7 +24,7 @@ By day, I pursue Nursing (Anesthesia), and by night, I dive into Software Engine
 ---
 
 #### 🔗 Connect with Me
-- 💼 [LinkedIn](https://www.linkedin.com/in/kingsley-acheampong)  
+- 💼 [LinkedIn](http://linkedin.com/in/kingsley-acheampong-748879337)  
 - 🐦 [Twitter/X](https://x.com/6ava9eking)  
 - 💻 [GitHub](https://github.com/king6ava9e)  
 - 📧 [Email](mailto:acheampongkingsley2003@gmail.com)  
